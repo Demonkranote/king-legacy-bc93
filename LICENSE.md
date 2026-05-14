@@ -1,4 +1,4 @@
-
+Get ahead in king legacy with smart Scripts for king legacy, featuring fly and no cooldown. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
